@@ -21,4 +21,4 @@ Techie / Custom Crypto Solider Starter Backpacks
 4. Crypto Cap / Hat
 
 
-5.  Crypto Badges / Pins Buttons
+5.  Crypto Collector Badges / Pins Buttons
