@@ -12,7 +12,7 @@ How-to Geek https://www.howtogeek.com/284060/how-to-ship-packages-without-leavin
 
 
 
-Techie / Custom Crypto Solider Starter Backpacks
+Techie / Custom Crypto Cadet Starter Backpacks
 1.  Laptop backpack (high product margin product)
 2.  Pitchbook (Investor (moleskin) Notebook)  + Good High Quality Ballpen Fountainpoint Metal
 3.  Thermos / Hydration Liquidity Container
